@@ -11,7 +11,7 @@ The books I've been interested in lately include a lot of self reflection and fo
 
 In my previous post, I talked about feeling lost and unsure how to spend my extra time not spent at work. DeVon Franklin expressed that in order to become an expert in the field you want to be in, you have to prepare and study.  Ask questions, listen, and meet people.  Maximize your potential and manage your time.  One of the things I've asked myself for the past few years is how can I take full advantage of the opportunities around me?
 
-So I asked myself, how did I want to use my time to prepare for the next big thing in my life?  Where did I want to take my career?  What are the most important aspects for a career to be satisfying and fulfilling to you?  It is important to recognize the value of what you do, who you are, and who you aspire to be.  Everyone has a gift.  A gift is what you do the absolute best with the least amount of effort.  When I first thought about what my gift was, I thought it was helping others but I realized that might be more of a passion that I want to include into my career.
+So I asked myself, how did I want to use my time to prepare for the next big thing in my life?  Where did I want to take my career?  What are the most important aspects for a career to be satisfying and fulfilling to you?  It is important to recognize the value of what you do, who you are, and who you aspire to be.  Everyone has a gift.  A gift is what you do the absolute best with the least amount of effort.  My first thoughts about what my gift might be includes helping others and I hope to always make this a focus in any career I choose.
 
 According to CliftonStrengths, my strengths include:
 1. Restorative: adept at dealing with problems
@@ -29,6 +29,3 @@ I think as people grow, goals might change or alter so it's important to remembe
 Kevin Hart's "I can't make this up: Life Lessons" talks about his dedication to be a comedian when time after time he could have given up.  Not only does he emphasize the importance of hard work and determination, but also the importance of believing in yourself.  
 
 ---
-Halfway through my first computer programming class my sophomore year of college, I took a leap of faith and changed my major.  I knew that I enjoyed problem solving and despite the program being daunting, I had to believe in myself.  
-
-Finding a way to pursue and master that gift in a way that makes a difference in the world 
